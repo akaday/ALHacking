@@ -30,4 +30,4 @@ We are not responsible for any misuse or damage caused by this program. Use this
 
 
 ❤️ Support me:
-https://www.paypal.me/Relvllahi
+https://www.paypal.me/barki0
